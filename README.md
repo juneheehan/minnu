@@ -1,4 +1,0 @@
-# minnu
-# minnu
-# minnu
-# minnu
